@@ -30,7 +30,7 @@ To get started on your budget, you’ll need to work out how much you spend on:
 * living costs
 * financial products, like insurance, bank charges or interest
 * family and friends, this could include gifts, travel to events like weddings
-* travel, car costs like fuel and MOT tests as well as public transport
+* travel, car costs like fuel and MOT tests as well as digital images, videos and other visual inputs public transport
 * leisure, including holidays, gym fees, meals out or other entertainment.
 
 ## SET GOALS AND MAKE ADJUSTMENTS
