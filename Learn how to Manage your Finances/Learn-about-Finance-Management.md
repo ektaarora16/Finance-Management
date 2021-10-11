@@ -88,6 +88,15 @@ Examples:
 
 ´ Lower credit costs (prime rate)
 
+# EMERGENCY FUNDS
+-  Emergency funds are an absolute necessity!! 
+
+ - Emergency funds = 3 – 6 months of basic living
+   expenses
+
+-  Emergency funds should be kept separate from
+   a savings account that is used primarily for
+   large, planned purchases
 
 # Conclusion 
 
