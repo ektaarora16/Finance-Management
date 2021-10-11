@@ -112,3 +112,10 @@ Examples:
 ## Conclusion 
 
 financial management practices is a field which deals with financial decisions including short and long goals of the organization and ensures that there is a high return on the invested capital without necessarily taking excess finance risk.
+
+
+## Contributors 
+- Ekta Arora 
+- aaquib ali
+- Shrejal
+- Ruthvik 
